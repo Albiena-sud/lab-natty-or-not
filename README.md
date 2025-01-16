@@ -1,4 +1,4 @@
-# A arquitetura como facilitadora no ensino-aprendizagem de sustentabilidade na escola)
+# A arquitetura como facilitadora no ensino-aprendizagem de sustentabilidade na escola
 
 ## 📒 Descrição
 Como projetos de arquitetura utilizando materiais e técnicas que respeitem o meio ambiente são capazes de ensinar e inspirar pessoas a terem hábitos mais sustentáveis.
